@@ -1,33 +1,35 @@
 # Vánoční mazanec
 ## Ingredience
+### Sušené ovoce
+- 50g sušeného ovoce (brusinky, goji) -přez noc namočit v rumu
+
 ### Rozkvas:
-- 150g múky manitoba kúpite tu (múku možete nahradiť pšeničnou chlebovou)
+- 150g mouky pšeničné chlebové
 - 100g vody
-- 1 polievková lyžica kvásku
+- 1PL kvásku
 
-### Cesto:
+### Těsto:
 - rozkvas
-- 250g múky manitoba kúpite tu
+- namočené sušené ovoce
+- 250g mouky pšeničné chlebové
 - 80g cukru
-- štipka soli
-- 90g mlieka
-- 2 žĺtka
-- 50g masla
+- špetka soli (cca půl až jedna čajová lžička)
+- 90g mléka
+- 2 žloutky
+- 50g másla
 - vanilka
-- 50g sušeného ovocia (cez noc namočiť vo vode, či rume)
+- 1PL nadrcených (stačí v ruce) mandlových lupínků
 
-### Na dokončenie:
-- žĺtok s kvapkou mlieka
-- mandľové lupienky
+### Na dokončení:
+- žloutek s kapkou mléka (bez mléka bude moc hustý)
+- mandlové lupínky
 
 ## Postup:
-Večer pred pečením pripravíme rozkvas. V miske zmiešame múku s vodou a kváskom. Výsledný rozkvas bude trošku tuhší. Necháme pri izbovej teplote kvasiť cca 6-9 hodín. Keďže je to rozkvas z pšeničnej múky musíme dať pozor na to, aby neprekvasil.
+Večer pred pečením připravíme rozkvas. V misce smícháme mouku s vodou a kváskem. Necháme při pokojové teplotě kvasit cca 6-9 hodin. Protože je to rozkvas z pšeničné mouky musíme dát pozor na to, aby nepřekvasil.
 
-Do vykvaseného rozkvasu pridáme múku, cukor a žĺtka. Na miernych otáčkach cesto miesime cca 7 minút, aby sa nám rozvinul lepok ešte predtým ako pridáme do cesta maslo. To totižto zabraňuje spájaniu lepkových vlákien. Do cesta následne pridáme maslo, vanilku a štipku soli.  Poriadne zapracujeme približne 4-5 minút, kým sa bude cesto pekne odlepovať od stien misky a ruky. Ak budete miesiť ručne je potrebné cesto poriadne vymiesiť a pri manitobe, ktorá obsahuje vysoký podiel bielkoviny bude celý tento proces trvať približne 15-20 minút. Takže budeme mať pekne vypracované svaly. Až na záver do cesta zapracujeme zliate sušené ovocie (keď ho na noc namáčate zalejte v malej miske iba po vrch ovocia, inak bude zbytočne premočené).
+Do vykvaseného rozkvasu přidáme mouku, cukr a žloutky. Na mírných otáčkach těsto mícháme cca 7 minut, aby se nám rozvinul lepek ještě předtím než přidáme do těsta máslo. To totiž zabraňuje spojjvání lepkových vláken. Do těsta následně přidáme máslo, vanilku a špetku soli. Pořádně zapracujeme približne 4-5 minut, až sa bude těsto pěkně odlepovat od stěn misky a od ruky. Když budete míchat ručne je potřeba těsto pořádně vymíchat a celý proces bude trvat přibližně 15-20 minut. Až na závěr do těsta zapracujeme slité sušené ovoce (když ho na noc namáčíte zalejte v malé misce jen po vrch ovoce, jinak bude zbytečně promočené).
 
-V zakrytej miske necháme cesto pri izbovej teplote kvasiť cca 2-3 hodiny počas ktorých cesto 2x preložíme. Po vykvasení si cesto vyberieme na pracovnú dosku a pomocou rúk sa snažíme vytvarovať bochník, ktorý čo najpevnejšie utiahneme, pretože mazanec bude kvasiť pri izbovej teplote potrebujeme aby čo najviac šiel do výšky a nie do šírky. Pre podrobnejší návod ako na to, som vám natočila video ktoré nájdete tu. Vytvarovaný mazanec položíme na papierom vystlaný plech, na ktorom budeme aj piecť. Mazanec prikryjeme veľkou miskou, pretože igelit by sa nám naň prilepil. Necháme finálne kvasiť, bude to trvať približne 2-4 hodiny. Rúru vyhrejeme na 200 stupňov na horný spodný ohrev. Vykysnutý mazanec potrieme žĺtkom, do ktorého kvapneme trošku mlieka a premiešame. Opatrne potrieme vrch mazanca, posypeme plátkami mandlí a narežeme do kríža. Pečieme v strede rúry približne 40-50 minút. Kontrolovala som pomocou špajle. Horúci mazanec necháme vychladnúť pod utierkou, aby povrch zostal pekne mäkký a vláčny.
-
-Ak budete mať akékoľvek pripomienky, či nápady k tomuto receptu budem veľmi rada ak mi zanecháte váš nápad v komente. Ak sa vám moje video páčilo, veľmi vás prosím o hodnotenie či zdieľanie pretože osobné hodnotenie je v tejto dobe to najcennejšie čo od vás môžem dostať. A určite mi tým urobíte neskutočnú radosť. Ďakujem vám za váš čas a vaše názory.
+V zakryté misce necháme těsto při pokokpvé teplotě kvasit cca 2-3 hodiny během kterých těsto 2x přeložíme. Po vykvasení si těsto vyndáme na pracovní desku a pomocí rukou se snažíme vytvarovat bochník, který co najpevněji utáhneme, pretože mazanec bude kvasit při pokojové teplotě potrebujeme aby co najvíc šel do výšky a ne do šířky. Vytvarovaný mazanec položíme na papírem vystlaný plech, na kterém budeme i péct. Mazanec přikryjeme velkou miskou, protože igelit by se nám na něj přilepil. Necháme finálně kvasit, bude to trvat přibližně 2-4 hodiny. Troubu vyhřejeme na 200 stupňů na horní spodní ohřev. Vykynutý mazanec potřeme žloutkem, do kterého kápneme trošku mléka a promícháme. Opatrně potřeme vrch mazance, posypeme plátky mandlí a nařežeme do kříže. Pečeme ve středu trouby přibližně 40-50 minut. Kontroloval jsem pomocí špejle. Horký mazanec necháme vychladnout pod utěrkou, aby povrch zůstal pěkně měkký a vláčný.
 
 Zdroj: https://nelkafood.sk/velkonocny-mazanec-2/
 
