@@ -2,6 +2,7 @@
 ## Ingredience
 ### Sušené ovoce
 - 50g sušeného ovoce (brusinky, goji)
+- rum (jen tolik aby bylo ovoce namočené)
 
 **Přes noc namočit v rumu.**
 
