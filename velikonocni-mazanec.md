@@ -18,13 +18,13 @@
 - 250g mouky pšeničné chlebové
 - 90g mléka
 - 80g cukru
+- vanilka/vanilkový cukr (3g)
 - 2 žloutky
+- 0,5-1 čajová lžička soli
+- 1čajová lžička citronové kůry -(mazanec bude žlutější)
 
 **Mícháme cca 10 minut.**
 - 50g másla
-- vanilka/vanilkový cukr (3g)
-- 0,5-1 čajová lžička soli
-- 1čajová lžička citronové kůry -(mazanec bude žlutější)
 - 1PL nadrcených (stačí v ruce) mandlových lupínků
 - namočené sušené ovoce
 
