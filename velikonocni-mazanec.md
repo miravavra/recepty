@@ -24,9 +24,9 @@
 - 1čajová lžička citronové kůry -(mazanec bude žlutější)
 
 **Mícháme cca 10 minut.**
-- 50g másla
+- 50g másla (nejlepší je ho předem rozpustit)
 - 1PL nadrcených (stačí v ruce) mandlových lupínků
-- namočené sušené ovoce
+- namočené sušené ovoce (přidávat až nakonec aby se neroztrhalo)
 
 **Necháme kvasit 2-3 hodiny během kterých těsto 2x-3x přeložíme.
 
