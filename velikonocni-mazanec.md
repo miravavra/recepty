@@ -39,8 +39,8 @@ Necháme přikryté kvasit cca 2-4 hodiny.**
 - posypeme mandlovéými lupínky
 - nařízneme do kříže
 
-###Pečeme
-Pečeme na 200°C 30-50minut podle trouby (kontrolujeme dle barvy nebo špejlí = nesmí lepit).
+### Pečeme
+Pečeme s plechem v dolní poloze, na 200°C, 30-50minut, bez horkovzduchu. Kontrolujeme dle barvy nebo špejlí = nesmí lepit.
 
 Zdroj: https://nelkafood.sk/velkonocny-mazanec-2/
 
