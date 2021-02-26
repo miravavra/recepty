@@ -17,7 +17,18 @@
 - voda
 
 ## Postup:
-Večer pred pečením si pripravím rozkvas. A to tak, že v miske zmiešam múku, vodu a kvások. Poriadne premiešam, prikryjem a nechám pri izbovej teplote kvasiť 9-12 hodín. Po uplynutí tohto času je rozkvas úplne plný bubliniek a vyzerá dosť riedko (je tak to je správne). Následne k rozkvasu primiešam preosiatu múku, vodu, soľ, masť a med. Vypracujem jemné od misky sa odlepujúce cesto, (teraz je cesto hrubé a nepoddajné) prikryjem a nechám pri izbovej teplote postáť 20 minút. Cesto z misky vyberiem a premiesim. Rázom tak získa jemnú a veľmi hebkú štruktúru, vrátim ho do misky prikryjem a nechám pri izbovej teplote kvasiť približne 2 hodiny. Počas týchto dvoch hodín cesto aspoň 2x preložím tak ako pri chlebíku. Cesto prekladám preto, aby získalo na pevnosti. Po vykvasení si celé cesto odvážim a rozdelím na 14 rovnakých častí (pričom jedna by mala mať okolo 86g). Každú časť cesta pomocou ruky vytvarujem do bochníkov, ktoré nechám pod fóliou odpočívať približne 20 minút. Následne každý jeden bochník rozvaľkám do tvaru trojuholníka. Ten zrolujem tak ako pri croissantoch. To znamená, že od širokej časti smerom k špicu rožka. Rukami ešte cesto pregúľam a vytvarujem do tvaru rožka. Natočila som Vám video, kde je presný postup stáčania. Prenesiem na plech vystlaný papierom na pečenie, postriekam vodou, prikryjem fóliou a nechám stáť (kvasiť) pri izbovej teplote, kým zdvojnásobia svoj objem. Trvá to približne 3-4 hodiny. Rúru si rozohrejem na teplotu 230 stupňov s ventilátorom. Vykvasené rožky postriekam vodou (najlepšie na to použiť rozprašovač). Pečiem so záparou približne 15 minút.  Po upečení rožky nechám vychladnúť na mriežke, kým nebudú studené. Ak máte akékoľvek nejasnosti využite na to diskusiu a položte svoju otázku. Rada vysvetlím, ak som na niečo zabudla. Podrobné video ako na to nájdete tu. Dobrú chuť.
+### Večer
+Večer pred pečením si připravím rozkvas (v miske smíchám mouku, vodu a kvásek). Pořádně promíchám, prikryju a nechám při pokojové teplotě kvasiť 9-12 hodin.
+### Ráno
+Po uplynutí tohoto času je rozkvas plný bublinek a vypadá dost řídce (tak je to správně). K rozkvasu přimíchám mouku, vodu, sůl, máslo a med. Vše zamíchám (těsto je teď hrubé a nepoddajné), přikryji a nechám při pokojové teplotě postát 20 minut.
+
+Těsto z promíchám (rázem tak získá jemnou a velmi hebkou strukturu), přikryji a nechám při pokojové teplotě kvasit přibližně 2 hodiny. Během těchto dvou hodín těsto alespoň 2x přeložím tak jako chleba. Těsto překládám proto, aby získalo na pevnosti.
+
+Po vykvasení si celé těsto odvážím a rozdělím na 14 stejných částí (pričem jedna by měla mít okolo 86g). Každou část těsta pomocí ruky vytvaruji do bochníků, které nechám pod fólií odpočívat přibližně 20 minut.
+
+Následně každý jeden bochník rozválím do tvaru trojúhelníka a ten sroluji od široké části směrem ke špičce. Rukama ještě těsto převálím a vytvaruji do tvaru rohlíku. Přenesu rohlíky na plech vystlaný papírem na pečení, přikryji fólií a nechám stát (kvasit) při pokojové teplotě, dokud nezdvojnásobí svůj objem. Trvá to približně 3-4 hodiny.
+
+Troubu si rozehřeji na teplotu 230 stupňů s ventilátorem. Vykvašené rohlíky postříkám vodou (najlepší je na to použít rozprašovač). Pečem se záparou přibližně 15 minut.  Po upečení rohlíky nechám vychladnout na mřížce, dokud nebudou studené.
 
 Zdroj: https://nelkafood.sk/domace_rozky_z_kvasku/
 
