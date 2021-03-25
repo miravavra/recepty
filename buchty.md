@@ -9,6 +9,7 @@
 - rozkvas
 - 400g hladké mouky na kynuté těsto (Babiččina volba)
 - 150g polotučného mléka
+- 1 vejce
 - 70g másla
 - 70g cukru krupice
 - 0,5-1 čajová lžička soli
