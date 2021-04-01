@@ -7,7 +7,7 @@ Pšenično-žitný chléb z kvásku
 
 ### Těsto:
 - rozkvas
-- 35Og pšeničné chlebové/celozrnné mouky
+- 350g pšeničné chlebové/celozrnné mouky
 - 200g vody
 - 2 čajové lžičky soli (cca 12g)
 - semínka
