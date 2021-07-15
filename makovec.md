@@ -2,7 +2,7 @@
 ## Ingredience
 ### Těsto:
 - 2 hrnky polohrubé mouky
-- 1,5 hrnku cukru
+- 1 hrnek cukru
 - 2 hrnky máku (200g)
 - 1 vanilkový cukr
 - nastrouhaná kůra z 1 citronu
