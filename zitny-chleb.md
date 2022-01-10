@@ -15,9 +15,9 @@
 ## Postup:
 Večer pred pečením si připravím rozkvas. V misce smíchám mouku, vodu a kvásek. Pořádně promíchám, přikryji a nechám pri pokojové teplotě kvasit cca 12 hodín.
 
-Ráno k rozkvasu přimíchám  mouku, vodu, sůl, kmín a semínka. Promíchané těsto přendám (je lepivé takže spíš překydám) do formy a přikryju aby neoschlo. Nechám kynout 2-8hodin (prakticky nemůže překynout).
+Ráno k rozkvasu přimíchám  mouku, vodu, sůl, kmín a semínka. Promíchané těsto přendám (je lepivé takže spíš překydám) do formy a přikryju aby neoschlo. Nechám kynout 2-4hodiny.
 
-Troubu si rozehřeju na maximum 250°C. Peču na 250°C 20minut se záparou (spodní plech s vodou). Pak vyndám záparu a pokračuji při 190°C dalších 20-30 minut.
+Troubu si rozehřeju na maximum 250°C. Peču na 250°C 20minut se záparou (spodní plech s vodou). Pak vyndám záparu a pokračuji při 190°C dalších 30 minut.
 
 Po upečení vyndám chleba z formy a nechám vychladnout na mřížce.
 
