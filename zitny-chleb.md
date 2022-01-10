@@ -1,15 +1,15 @@
  100% žitný chléb z kvásku
 ## Ingredience
 ### Rozkvas:
-- 150g žitné chlebové mouky
-- 150g vody
-- 50g žitného kvásku
+- 300g žitné chlebové mouky
+- 300g vody
+- 50-100g žitného kvásku
 
 ### Těsto:
 - rozkvas
-- 325g žitné mouky
-- 250g vody
-- 12g  soli
+- 650g žitné mouky
+- 500g vody
+- 24g (4 lžičky) soli
 - semínka
 
 ## Postup:
