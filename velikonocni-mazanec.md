@@ -1,4 +1,4 @@
-# Vánoční mazanec
+# Velikonoční mazanec
 ## Ingredience
 ### Sušené ovoce
 - 50g sušeného ovoce (brusinky, goji)
