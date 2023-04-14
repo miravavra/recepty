@@ -40,7 +40,7 @@ Necháme přikryté kvasit cca 2-4 hodiny.**
 - nařízneme do kříže
 
 ### Pečeme
-Pečeme s plechem v dolní poloze, na 200°C, 30-40minut, bez horkovzduchu. Kontrolujeme dle barvy nebo špejlí = nesmí lepit.
+Pečeme s plechem v dolní poloze, na 180°C, 30-40minut, bez horkovzduchu. Kontrolujeme dle barvy nebo špejlí = nesmí lepit.
 
 Zdroj: https://nelkafood.sk/velkonocny-mazanec-2/
 
